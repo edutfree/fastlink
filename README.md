@@ -21,7 +21,11 @@
 
 ## fastlink优惠码
 
-不定期更新
+Fastlink 6年老牌专线加速器，开启2025年国庆大促，低至64折起
+
+优惠码：[fastlink80](https://www.flcn.cc/auth/register?code=G86hfEvi)
+
+> 全场8折，商店里的年付已经有8折优惠，配合本次国庆优惠码后，最低可至64折！！！
 
 ## 套餐列表
 

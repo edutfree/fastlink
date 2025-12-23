@@ -1,6 +1,6 @@
 # fastlink官网最新地址
 
-最新地址：[flcn.cc](https://www.flcn.cc/auth/register?code=G86hfEvi)
+最新地址：[flweba08.cc](https://w03.flweba08.cc/auth/register?code=G86hfEvi)
 
 备用地址：[fastlink.cc](https://flafflnk01.flaff9.cc/auth/register?code=G86hfEvi)
 

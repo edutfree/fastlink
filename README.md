@@ -2,15 +2,7 @@
 
 最新地址：[flweba08.cc](https://w03.flweba08.cc/auth/register?code=G86hfEvi)
 
-备用地址：[fastlink.cc](https://flafflnk01.flaff9.cc/auth/register?code=G86hfEvi)
-
----
-
-**温馨提示：任何服务均有跑路风险，请自行注意防范！**
-
-**本页面仅分享网络信息，不做推荐，有问题请自行联系服务商处理！**
-
----
+备用地址：[fastlink.cc](https://a01.flaff9.cc/auth/register?code=G86hfEvi)
 
 ## fastlink简介
 

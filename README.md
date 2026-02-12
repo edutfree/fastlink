@@ -13,11 +13,11 @@
 
 ## fastlink优惠码
 
-Fastlink 6年老牌专线加速器，FastLink 圣诞 & 元旦限时活动！年末加速，稳定冲浪不停歇！
+Fastlink 6年老牌专线加速器，FastLink 2026年春节限时活动！稳定冲浪不停歇！
 
-优惠码：[fastlink2026](https://www.flcn.cc/auth/register?code=G86hfEvi)
+优惠码：[2026cny](https://www.flcn.cc/auth/register?code=G86hfEvi)
 
-> 全场8折，商店里的年付已经有8折优惠，配合本次国庆优惠码后，最低可至64折！！！
+> 全场8折，商店里的年付已经有8折优惠，配合本次新春优惠码后，最低可至64折！！！
 
 ## 套餐列表
 

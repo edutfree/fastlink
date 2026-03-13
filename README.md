@@ -1,8 +1,8 @@
 # fastlink官网最新地址
 
-最新地址：[flweba08.cc](https://w03.flweba08.cc/auth/register?code=G86hfEvi)
+最新地址：[flweba08.cc](https://w03.flweba08.cc/auth/register?code=bH7g8OE6)
 
-备用地址：[fastlink.cc](https://a01.flaff9.cc/auth/register?code=G86hfEvi)
+备用地址：[fastlink.cc](https://a01.flaff9.cc/auth/register?code=bH7g8OE6)
 
 ## fastlink简介
 
@@ -15,7 +15,7 @@
 
 Fastlink 6年老牌专线加速器，FastLink 2026年春节限时活动！稳定冲浪不停歇！
 
-优惠码：[2026cny](https://www.flcn.cc/auth/register?code=G86hfEvi)
+优惠码：[2026cny](https://www.flcn.cc/auth/register?code=bH7g8OE6)
 
 > 全场8折，商店里的年付已经有8折优惠，配合本次新春优惠码后，最低可至64折！！！
 
@@ -31,7 +31,7 @@ Fastlink 6年老牌专线加速器，FastLink 2026年春节限时活动！稳定
 |半年付|108元|216元|430元|810元|
 |年付|190元|380元|767元|1440元|
 
-还有一个[特价小流量年付](https://www.flcn.cc/auth/register?code=G86hfEvi)套餐，¥90/年，每月50G流量，不限制同时在线设备数
+还有一个[特价小流量年付](https://www.flcn.cc/auth/register?code=bH7g8OE6)套餐，¥90/年，每月50G流量，不限制同时在线设备数
 
 ### fastlink套餐特色
 
